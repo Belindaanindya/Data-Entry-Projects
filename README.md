@@ -153,5 +153,5 @@ Enriched an existing list of **50 companies** by researching additional business
 
 **Belinda Anindya Kusuma Wardhani**  
 Data Entry | Administrative Support | Data Analyst  
-GitHub: https://github.com/Belindaanindya 
-LinkedIn: https://linkedin.com/in/belindaanindya
+GitHub: https://github.com/Belindaanindya                                                                                                                                                                          
+LinkedIn: https://www.linkedin.com/in/belindaanindya
